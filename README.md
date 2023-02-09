@@ -1,2 +1,2 @@
-# trustbillionlewisjohn
-Great opportunity 
+# trustmillionlewisjohn.com
+Great opportunity platform
